@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Spark for macOS script with custom Adobe Spark for macOS Script | AI-enhanced-editing + retouch-tools. Featuring AI-enhanced-editing and retouch-tools, it's
 
 
 
